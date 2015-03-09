@@ -2,7 +2,7 @@ Summer2015
 Coding Space for the Work Done in the Summer of 2015
 ====================================================
 
-My name is Luke Licursi. I am currently looking for something productive and helpful to do with my summer.
+My name is Luke Licursi. I am currently looking for something productive and helpful to do with my 2015 summer.
 I am a student at the University of Toronto in the Engineering Science Program.
 I would like stay mentally active by practicing the skills I have been taught over my first two year this summer. 
 
