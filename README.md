@@ -1,4 +1,4 @@
-Summer 2015 - Coding Space 
+Summer 2015 - Coding Space
 ====================================================
 
 My name is Luke Licursi. I am currently looking for something productive and helpful to do with my 2015 summer.
