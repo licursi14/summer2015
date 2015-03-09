@@ -1,5 +1,5 @@
 Summer2015
-Coding Space for the work done in the summer of 2015
+Coding Space for the Work Done in the Summer of 2015
 ====================================================
 
 My name is Luke Licursi. I am currently looking for somehing productive and helpful to do with my summer.
